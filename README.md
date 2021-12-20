@@ -1,5 +1,5 @@
 # Galaxy-case
-<p><strong>プラダ Galaxy S21Plus/S21Ultra/S21ケース Prada人気商品を発売</strong></p>
+<p><strong>プラダ Galaxy S21Plus/S21Ultra/S21人気ケースが好評販売中！</strong></p>
 <p>&nbsp;</p>
 <p>人気ブランドプラダのGalaxy S21Plus/S21Ultra/S21ケースが登場！</p>
 <p>カワイイものからクールなものまで様々なデザインのスマホケースが豊富！</p>
